@@ -1,7 +1,7 @@
 # Edwige Pouhier
 
 ## Expérience professionnelle
-* En ce moment : en stage en tant que ** *fabmanager* de L'Atelier Numérique de l'école Boulle ** (jusque fin mars)
+* En ce moment : en stage en tant que ***fabmanager* de L'Atelier Numérique de l'école Boulle** (jusque fin mars)
 * 2007-2014 : divers stages dans l'artisanat, le design produit / mobilier...
 
 ## Formation
